@@ -1,6 +1,6 @@
 # privacy-policy# Privacy Policy for PerfectShot
 
-**Last updated:** [Current Date]
+**Last updated:** [03-03-2025]
 
 ## Introduction
 
